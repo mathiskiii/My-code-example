@@ -24,7 +24,7 @@ All lessons are available on YouTube. Click any title to watch:
 7. ❌ **Don’t Do This (20 min):** [Watch on Builder's Console Log](https://www.skool.com/ai-for-your-business/about)  
 8. 📚 **Full Guide (3.4 hours):** [Watch on YouTube](https://youtu.be/tvquJI-v8ys)  
 
-> ℹ️ **Tip:** To open multiple links, right-click each link and choose “Open link in new tab.”
+> ℹ️ **Tip:** To open multiple links, right-click each link and choose “Open link in new tab.” pluhhhhhh
 
 ---
 
